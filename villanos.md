@@ -1,0 +1,2 @@
+* guku black
+* vegueta z
